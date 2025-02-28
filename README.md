@@ -1,3 +1,4 @@
+[@linkedin.com/in/dthompson](https://www.linkedin.com/in/dthompson/)
 ## Hi there 👋
 
 <!--
